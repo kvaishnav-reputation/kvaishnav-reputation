@@ -2,7 +2,7 @@
 - 👀 I’m interested in Java Project
 - 🌱 I’m currently learning Web3
 - 💞️ I’m looking to collaborate on open source project
-- 📫 How to reach me through mail kuldeepbvaishnmav44@gmail.com
+- 📫 How to reach me through mail kvaishnav@reputation.com
 - 😄 Pronouns: Kuldeep Vaishnav
 - ⚡ Fun fact: 
 
